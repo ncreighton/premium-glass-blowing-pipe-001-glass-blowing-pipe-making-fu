@@ -1,0 +1,2 @@
+# premium-glass-blowing-pipe-001-glass-blowing-pipe-making-fu
+Tired of paying premium prices for mass-produced glass pipes that lack soul? Learn to build your own furnace and craft custom smoking pipes from scratch—right in your backyard.  This comprehensive guide transforms you from glass-curious to furnace master. You'll not only make one-of-a-kind pipes but also construct the very furnace that melts the gl
